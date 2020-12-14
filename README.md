@@ -1,0 +1,1 @@
+# ARK-Invest-stocks-trending-analysis-DEC-2020
